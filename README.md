@@ -10,4 +10,4 @@
 
 
 ### Support Need
-> Don't Forgot to give ** _star ⭐_ ** & follow 
+> Don't Forgot to give **_star ⭐_** & follow 
